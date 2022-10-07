@@ -66,7 +66,7 @@ https://heroku.com/deploy?template=https://github.com/darkalphaxteam/QUEEN-BIXBY
 
 # Contact for help:
 
-   * Click [Contact](https://wa.me/94711421243) Here For Contact
+   * Click [Contact](https://wa.me/923420567233) Here For Contact
 
       </br> <p/>
 
